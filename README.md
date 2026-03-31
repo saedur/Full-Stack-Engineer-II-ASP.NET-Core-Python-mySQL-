@@ -29,3 +29,10 @@ Opportunity to work on impactful digital service and telecom projects
 Work with a fast-paced, innovative engineering team
 Strong growth potential toward senior technical leadership roles
 
+send your CV to : saedur.rahman@vumobile.biz 
+or 
+Apply now: https://forms.gle/zoYCjQQJYy3gkZzU6
+
+
+
+
